@@ -1,4 +1,4 @@
-[2]: http://www.pso2luna.com/wp-content/uploads/2012/11/pso2-ranger-girl.jpg
+[2]: http://www.pixiv.net/member_illust.php?mode=medium&illust_id=58206893
 
 ![2]
 
