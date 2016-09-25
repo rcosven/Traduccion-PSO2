@@ -1,4 +1,4 @@
-[2]: https://s-media-cache-ak0.pinimg.com/736x/36/96/6d/36966df84567031d097c366311269caf.jpg
+[2]: https://raw.githubusercontent.com/rcosven/Traduccion-PSO2/master/Matoi.png
 
 ![2]
 
